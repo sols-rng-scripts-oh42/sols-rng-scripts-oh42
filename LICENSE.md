@@ -1,4 +1,4 @@
-
+Free vip Scripts for escape tsunami - auto-win and inst-escape brings you the best free scripts for escape tsunami, featuring auto-win and inst-escape. Our mission is to empower players with the resources they need to excel. Say goodbye to paywalls and hello to unlimited possibilities.
 
 
 ---
